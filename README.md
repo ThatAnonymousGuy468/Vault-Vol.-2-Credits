@@ -707,7 +707,7 @@ Vault University: https://www.youtube.com/watch?v=55pyfPrqBZ8
 
 Something Sound: https://www.youtube.com/watch?v=nk8Uc8sFrSA
 
-Music (***EDIT***)
+Music
 
 Fallout 1 Soundtrack - Radiation Storm (The Glow): https://www.youtube.com/watch?v=KZZKzJTGI9E&list=PLC0C2A6BCA6040BC8&index=13
 
